@@ -1,0 +1,1 @@
+Happy New Year, my love! 💖 I feel so incredibly lucky to have you by my side as we step into another year together. You make every moment brighter, and I can’t imagine my life without you in it. Here’s to more laughter, more adventures, and more love in 2024. You’re my everything, and I can’t wait to see what this year brings for us. Love you always and forever. 💫
